@@ -29,22 +29,22 @@ Here are a few things I can assist with:
 - 💸 **Finance & Data Engineering Projects**
 - 🌍 **Open Source Contributions & Research**
 - 💡 **Technical Brainstorming & Mentorship**
-- - 🔭 I’m currently working on AI ENGINEERING
-- 🌱 I’m currently learning AI 
-- 👯 I’m looking to collaborate on  ENTREPRENEURSHIP
-- 🤔 I’m looking for help with FOUNDERS OR ENTREPRENEURS 
-- 💬 Ask me about AI CYBERSECURITY..
-- 📫 How to reach me : t.me/networkdefender
-- 😄 Pronouns: Mr 
-- ⚡ Fun fact: ... I LIKE TO INNOVATIVE NEW TECH WITH ALREADY INNOVATED TECH
+- - **🔭 I’m currently working on AI ENGINEERING**
+- **🌱 I’m currently learning AI**
+- **👯 I’m looking to collaborate on  ENTREPRENEURSHIP**
+- **🤔 I’m looking for help with FOUNDERS OR ENTREPRENEURS**
+- **💬 Ask me about AI CYBERSECURITY..**
+- **📫 How to reach me : t.me/networkdefender**
+- **😄 Pronouns: Mr H**
+- **⚡ Fun fact: ... I LIKE TO INNOVATIVE NEW TECH WITH ALREADY INNOVATED TECH**
 
 ---
 
 ## 📫 Let's Connect!
 
-- [LinkedIn](https://www.linkedin.com/in/mr-hemagiri)  
-- [Twitter](https://twitter.com/Aiengineer89289)  
-- [Personal Website](https://hemagirimogasala.vercel.app)  
+- **[LinkedIn](https://www.linkedin.com/in/mr-hemagiri)**
+- **[Twitter](https://twitter.com/Aiengineer89289)**
+- **[Personal Website](https://hemagirimogasala.vercel.app)**
 
 ---
 
